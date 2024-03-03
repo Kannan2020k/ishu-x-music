@@ -2,9 +2,6 @@
     ──「🌸 ˹ɪꜱʜᴜ ✘ ᴍᴜꜱɪᴄ˼ ~🎵 🌸」──
 </h2>
 
-<p align="center">
-  <img src="https://telegra.ph/file/904b7ce31b8214cb44052.jpg">
-</p>
 
 
 
